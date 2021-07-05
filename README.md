@@ -1,0 +1,1 @@
+Olá, estou gostando do curso pois há bastante prática.
